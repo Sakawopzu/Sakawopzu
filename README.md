@@ -8,9 +8,6 @@ And!
 Yes!
 That's all!
 I make stuff! I made stuff! Most of my stuff is probably private though! Haha!
-Hahahhahaahahahahaaha!!!!!!
-Oh my god!
-I am energetic!!  
 <br>
 
 ## My Socials! 🔆
